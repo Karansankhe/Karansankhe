@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 Final Year Computer Engineering student at VCET  <br>🏆 30+ Hackathons | 9 Wins | 9+ Finalists  <br>📚 Research Published @ ICICDS 2025  <br>💼 Interned at Scogo, BinaryStitch, and Ignitus  <br>
+🎓 AI RESEARCH INTERN AT SCOGO NETWORKS <br>🏆 30+ Hackathons | 9 Wins | 9+ Finalists  <br>📚 Research Published @ ICICDS 2025 AND OTHER UPCOMING  <br>💼 Prev at BinaryStitch, and Ignitus  <br>
 
 
 ## 🌐 Socials:
